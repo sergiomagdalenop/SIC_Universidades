@@ -73,4 +73,7 @@ Quiero ser contribuidor
 UV campus Veracruz
 
 
+que tal Jose Sergio Magdaleno Palencia
+ITTijuana
+
 
